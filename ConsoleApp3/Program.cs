@@ -9,3 +9,4 @@
     }
 }
 dsfdsfsdfsdfdsfs
+    я лох петух негр
